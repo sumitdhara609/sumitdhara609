@@ -10,12 +10,13 @@ I believe in combining **logic, creativity, and curiosity** to build meaningful 
 
 ## 🌟 Highlights
 
+- 📖 Author of *"Rethink What We Eat"* (Published globally via Amazon & KDP)
 - 🏆 SOF IEO 2025–26: State Topper (West Bengal) | International Rank 11 | 99.82 percentile
 - 🏅 SOF IGKO 2023–24: West Bengal Rank 2 | International Rank 33 | 98.93 percentile
 - 🥇 SOF IMO 2025–26: City Topper (Bankura) | State Rank 7 | 97.92 percentile
 - 📸 Selected for India Photo Fest 2025 (ICCR Kolkata) — among 1,00,000+ global entries
 - 🥇 Gold Medalist – Global Photography Contest Season 11 (2025)
-- 📖 Author of *"Rethink What We Eat"* (Published globally via Amazon & KDP)
+
 
 ---
 

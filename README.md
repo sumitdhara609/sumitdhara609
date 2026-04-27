@@ -1,4 +1,4 @@
-# 👋 Hi, This is Sumit Dhara
+# 👋 Hi, I'm Sumit Dhara
 
 ## 🚀 Builder • Explorer • Storyteller
 
